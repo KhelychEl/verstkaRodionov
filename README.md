@@ -1,0 +1,1 @@
+I expect from the course of valuable knowledge about the 'verstka' and a lot of practice.
